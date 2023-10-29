@@ -1,3 +1,4 @@
+https://raw.githubusercontent.com/Gabsteroide77/test_python_hack_1/main/passed_tests_result.png
 # SOCIAL OPLESK
 ### 🏴‍☠️ HACKS 
 
